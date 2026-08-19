@@ -1,2 +1,0 @@
-Tendencias_Aula01_FundamentosIA_ModelosGenerativos.pdf
-Tendências em Ciência da Computação - N1_2122_-_C.C_ (Not) _SEDE_UDFTendencias_Aula01_FundamentosIA_ModelosGenerativos
